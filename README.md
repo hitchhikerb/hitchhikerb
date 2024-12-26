@@ -1,5 +1,6 @@
-## Hi there 👋
-
+<div align="center">
+<img src="https://files.catbox.moe/1bmre2.png" width=90%" height="40%"> 
+<img src="https://files.catbox.moe/25ee21.png" width=50%" height="50%">
 <!--
 **hitchhikerb/hitchhikerb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
