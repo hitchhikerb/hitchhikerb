@@ -1,17 +1,23 @@
+<div id="header" align="center">
+ ❝ fukouna girl, fukouna girl
+'cause pretty girls can never die !! ❞
 <div align="center">
 <img src="https://files.catbox.moe/1bmre2.png" width=90%" height="40%"> 
-<img src="https://files.catbox.moe/25ee21.png" width=50%" height="50%">
-<!--
-**hitchhikerb/hitchhikerb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div id="header" align="center">
+
+<img src="https://files.catbox.moe/vxc9xs.gif" width="3%" heigh="3%"> 
+꒰  ❝ Hitch ;; Seba ! Randal . . kinnie . .   
+‎
+
+
+I usually am only on pt with my [pook](https://github.com/Vivixenne) , but I sit alone some times . Interacting is totally ok !!
+
+(・∀・)
+
+!! Copying or taking inspo from my ponies is totally ok , I rly dont mind
+<img src="https://files.catbox.moe/rnq1r8.gif" width="3%" height="3%">
+
+;; [Ata](https://sebbybigfat.atabook.org) [Strawpage](https://satosito.straw.page) [Shared rentry](https://rentry.co/tootsierolls) [Neocites](https://youtu.be/TE4RtN08BL0?si=di7n34QBFTT7lcff) !! “
+
