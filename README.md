@@ -16,8 +16,8 @@ I usually am only on pt with my [pook](https://github.com/Vivixenne) , but I sit
 
 (・∀・)
 
-!! Copying or taking inspo from my ponies is totally ok , I rly dont mind
-<img src="https://files.catbox.moe/rnq1r8.gif" width="3%" height="3%">
+
+
 
 ;; [Ata](https://sebbybigfat.atabook.org) [Strawpage](https://satosito.straw.page) [Shared rentry](https://rentry.co/tootsierolls) [Neocites](https://youtu.be/TE4RtN08BL0?si=di7n34QBFTT7lcff) !! “
 
