@@ -21,3 +21,6 @@ I usually am only on pt with my [pook](https://github.com/Vivixenne) , but I sit
 
 ;; [Ata](https://sebbybigfat.atabook.org) [Strawpage](https://satosito.straw.page) [Shared rentry](https://rentry.co/tootsierolls) [Neocites](https://youtu.be/TE4RtN08BL0?si=di7n34QBFTT7lcff) !! “
 
+<div id="header" align="center">
+<img src="https://files.catbox.moe/qzdeyt.webp" width="30%" heigh="3%">
+<img src="https://files.catbox.moe/5amdwj.webp" width="30%" heigh="3%">
