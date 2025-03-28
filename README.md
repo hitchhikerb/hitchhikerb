@@ -1,6 +1,6 @@
 <div id="header" align="center">
- ❝ fukouna girl, fukouna girl
-'cause pretty girls can never die !! ❞
+ ❝ Baby, I'm preying on you tonight
+Hunt you down eat you alive . . ❞
 <div align="center">
 <img src="https://files.catbox.moe/1bmre2.png" width=90%" height="40%"> 
 
@@ -19,7 +19,7 @@ I usually am only on pt with my [pook](https://github.com/Vivixenne) , but I sit
 
 
 
-;; [Ata](https://sebbybigfat.atabook.org) [Strawpage](https://satosito.straw.page) [Shared rentry](https://rentry.co/tootsierolls) [Neocites](https://youtu.be/TE4RtN08BL0?si=di7n34QBFTT7lcff) !! “
+;; [Ata](https://sebbybigfat.atabook.org) [Strawpage](https://theringmaster.straw.page) [Shared rentry](https://rentry.co/tootsierolls) [Neocites](https://youtu.be/TE4RtN08BL0?si=di7n34QBFTT7lcff) !! “
 
 <div id="header" align="center">
 <Img src="https://files.catbox.moe/0oty7s.gif" width="30%" heigh="3%">
