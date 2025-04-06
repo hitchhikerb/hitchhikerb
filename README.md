@@ -2,7 +2,7 @@
  ❝ Baby, I'm preying on you tonight
 Hunt you down eat you alive . . ❞
 <div align="center">
-<img src="https://files.catbox.moe/k3bct6.png" width=90%" height="40%"> 
+<img src="https://files.catbox.moe/sd6tzr.png" width60%" height="40%"> 
 
 
 <div id="header" align="center">
@@ -23,5 +23,5 @@ I usually am only on pt with my [pook](https://github.com/Vivixenne) , but I sit
 
 
 <div id="header" align="center">
- <img src="https://files.catbox.moe/7n0z9d.gif" width="30%" heigh="3%">
-<img src="https://files.catbox.moe/ospq8l.gif" width="30%" heigh="3%">
+ <img src="https://files.catbox.moe/9fo50j.gif" width="30%" heigh="3%">
+
