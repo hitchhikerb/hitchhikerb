@@ -1,6 +1,5 @@
 <div id="header" align="center">
- ❝ Baby, I'm preying on you tonight
-Hunt you down eat you alive . . ❞
+ ❝ So drive them staples deep (Come on!) ❞
 <div align="center">
 <img src="https://files.catbox.moe/sd6tzr.png" width60%" height="40%"> 
 
