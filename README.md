@@ -25,3 +25,4 @@ I usually am only on pt with my [pook](https://github.com/Vivixenne) , but I sit
 <div id="header" align="center">
  <img src="https://files.catbox.moe/9fo50j.gif" width="30%" heigh="3%">
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316shfwtdjru2uk3jiihh3jxaa6m&cover_image=true&theme=novatorem&show_offline=false&background_color=ff2c98&interchange=true&bar_color=09f100&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
