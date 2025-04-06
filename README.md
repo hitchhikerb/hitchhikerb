@@ -7,7 +7,7 @@ Hunt you down eat you alive . . ❞
 
 <div id="header" align="center">
 
-<img src="https://files.catbox.moe/vxc9xs.gif" width="3%" heigh="3%"> 
+<img src="https://files.catbox.moe/3ilujm.gif" width="8%" heigh="8%"> 
 ꒰  ❝ Seba ! Randal . . kinnie . .   
 ‎
 
